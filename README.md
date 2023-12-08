@@ -1,4 +1,4 @@
 Hi, I'm Preston
-Currently Taking AP Comp Sci
-10th Grade
+Currently Taking Adv Comp Sci
+11th Grade
 He/Him
